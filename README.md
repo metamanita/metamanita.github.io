@@ -1,2 +1,2 @@
 # metamanita
-Reclaim the Metavers
+Reclaim the Metaverse
